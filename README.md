@@ -5,7 +5,7 @@
 
 <div id="" align="center">
 
-https://github.com/user-attachments/assets/3b6670e7-f31a-462d-9f2b-c9f98c8eb5f1
+file:///C:/Users/xylun/Downloads/Mobile%20Devices/20358.mp4
 
 <p align="center"><b>"</b> <em>if u can't kill me this makes me some kind a God.</em> <b>"</b></p>
 
